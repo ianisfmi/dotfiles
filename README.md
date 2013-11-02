@@ -1,4 +1,8 @@
 dotfiles
 ========
 
-primu repo
+primu repolakds
+
+sasds	
+ansdsasdsaiisdad
+wqqw
